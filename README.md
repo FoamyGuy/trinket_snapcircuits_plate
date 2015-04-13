@@ -1,0 +1,1 @@
+![image](plate_with_trinket.png)
