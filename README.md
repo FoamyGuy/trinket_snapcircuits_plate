@@ -1,1 +1,1 @@
-![image](plate_with_trinket.png)
+![image](front_pic.png)
